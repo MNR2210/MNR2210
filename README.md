@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Informatic Engineering
 - 💞️ I’m looking to collaborate when my experience grow up
 - 📫 How to reach me: Outlook: Marianonahuel2210@outlook.com - Ig: marianonahuel2210
-- 😄 Pronouns: he, him
+- 😄 Pronouns: He
 - ⚡ Fun fact: People don't call me for "El Ruso", only a friend (It's a long story...)
 
 <!---
